@@ -1,0 +1,2 @@
+# siA
+LATIHAN1
